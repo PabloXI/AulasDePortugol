@@ -1,1 +1,0 @@
-console.log ('UM TAPA NA GOSTOSA YES BABY THANK YOUUU')
